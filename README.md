@@ -5,11 +5,9 @@
 Are you looking for an easy way to create stunning AI-powered videos? **Revid AI** is the ultimate solution for content creators, marketers, and businesses who want to produce high-quality videos in minutes. And now, for a limited time, you can get an **exclusive 75% discount** using our special promo code!  
 
 # [activate discount code 75%off](https://warpvideo.ai/?ref=malik)
-<a href="https://warpvideo.ai/?ref=malik">
-  <img src="https://github.com/user-attachments/assets/09f62a0e-4126-421a-ac4e-00c289a9206d" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
-</a>
 
 ## **Why Choose Revid AI?**  
+
 
 Revid AI is a cutting-edge platform that leverages artificial intelligence to transform your ideas into professional videos effortlessly. Whether you need promotional videos, social media content, tutorials, or ads, Revid AI makes the process seamless with:  
 
